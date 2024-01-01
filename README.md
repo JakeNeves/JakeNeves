@@ -4,6 +4,4 @@
 
 I'm a canuck who enjoys programming, pixel art, etc.
 
-I am the creator of the Terraria Eternal mod as well as
-other things that you might see on here or out across the net
-sometimes...
+Creator of the Terraria Eternal Mod and other things you see here or out across the net sometimes...
