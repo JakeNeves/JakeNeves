@@ -4,6 +4,6 @@
 
 I'm a canuck who enjoys programming, pixel art, etc.
 
-Retiring from the Eternal mod soon...
+Former developer of the Eternal mod...
 
 Creator of some of the things you see here or out across the net sometimes!
